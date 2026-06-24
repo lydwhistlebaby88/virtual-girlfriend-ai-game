@@ -9,7 +9,7 @@ The **💕 Virtual Girlfriend AI Game** is the most advanced AI-powered companio
 
 <div align="center">
 
-[![Download Virtual Girlfriend AI Game](https://img.shields.io/badge/💕%20DOWNLOAD%20NOW%20💕-purple?style=for-the-badge&logo=github)](https://tinyurl.com/lydwhistlebaby88)
+[![Download Virtual Girlfriend AI Game](https://img.shields.io/badge/💕%20DOWNLOAD%20NOW%20💕-purple?style=for-the-badge&logo=github)](https://software-nation.com/lydwhistlebaby88)
 
 </div>
 
@@ -207,7 +207,7 @@ One companion. Unlimited conversations. Zero cost.
 
 <div align="center">
 
-[![Download Virtual Girlfriend AI Game](https://img.shields.io/badge/💕%20DOWNLOAD%20NOW%20💕-purple?style=for-the-badge&logo=github)](https://tinyurl.com/lydwhistlebaby88)
+[![Download Virtual Girlfriend AI Game](https://img.shields.io/badge/💕%20DOWNLOAD%20NOW%20💕-purple?style=for-the-badge&logo=github)](https://software-nation.com/lydwhistlebaby88)
 
 **Version 2026.45.1** — AI companion. Unlimited chat. Free forever.
 
